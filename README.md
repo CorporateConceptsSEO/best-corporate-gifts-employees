@@ -2,6 +2,7 @@
 
 Do employee gifts keep getting the same polite, lukewarm response?
 
+![Best Corporate Gifts for Employees](https://github.com/CorporateConceptsSEO/best-corporate-gifts-employees/blob/main/best-corporate-gifts-employees.jpg)
 ## Do You Need to Understand What Actually Lands With Your Team?
 
 Without feedback, the best corporate gifts for employees stay a repeated guess instead of an informed choice.
